@@ -8,4 +8,4 @@ My favorite color is Blue
 
 My favorite 3 artist are nothing
 
-On the weekends I like to play video games with friends# gtky-yovani
+On the weekends I like to play video games with friends
